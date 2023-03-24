@@ -16,3 +16,8 @@ All the very best for whatever comes next, Benjy. I wish we'd got to work togeth
 `#028A0F` *Thank you for being a great colleague! I really enjoyed working with you and have learned a lot. Good luck for all your future adventures!* :four_leaf_clover: :four_leaf_clover: :four_leaf_clover:
 
 ![Wwtbams08E03 GIF by Stellify Media](https://media4.giphy.com/media/hsRzOoZ9iEKTjSTTyF/giphy.gif)
+
+### Rachel H
+Benjy, it's been great to work with you and all the best in the future! :four_leaf_clover:
+
+![bunny good luck](https://media.giphy.com/media/cMnt7i2RykmpW/giphy.gif)
