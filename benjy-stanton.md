@@ -17,6 +17,12 @@ All the very best for whatever comes next, Benjy. I wish we'd got to work togeth
 
 ![Wwtbams08E03 GIF by Stellify Media](https://media4.giphy.com/media/hsRzOoZ9iEKTjSTTyF/giphy.gif)
 
+
+### Rachel H
+Benjy, it's been great to work with you and all the best in the future! :four_leaf_clover:
+
+![bunny good luck](https://media.giphy.com/media/cMnt7i2RykmpW/giphy.gif)
+
 ### Tom
 Absolute pleasure working with you again Benji. Can't wait for the next time! Good luck with everything in the future. See you around. ;-)
 
@@ -28,4 +34,3 @@ Absolute pleasure working with you again Benji. Can't wait for the next time! Go
 Ciao Benjy, wishing you the best of luck in your future adventures. I hope we will meet again and work together on a project one day!
 
 ![Ciao!](https://media.tenor.com/_0SyvC_r2XAAAAAC/hi-hello.gif)
-
