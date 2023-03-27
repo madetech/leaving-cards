@@ -23,3 +23,9 @@ Absolute pleasure working with you again Benji. Can't wait for the next time! Go
 ( *ps. I searched Giphy for a something vaguely Welsh and found what I think might be the best GIF ever!!* )
 
 ![Yr Fenni](https://media.giphy.com/media/uFOaiIPaQe8UvJ1UxS/giphy.gif)
+
+### Fran
+Ciao Benjy, wishing you the best of luck in your future adventures. I hope we will meet again and work together on a project one day!
+
+![Ciao!](https://media.tenor.com/_0SyvC_r2XAAAAAC/hi-hello.gif)
+
