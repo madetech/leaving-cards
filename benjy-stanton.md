@@ -37,3 +37,7 @@ Absolute pleasure working with you again Benji. Can't wait for the next time! Go
 Ciao Benjy, wishing you the best of luck in your future adventures. I hope we will meet again and work together on a project one day!
 
 ![Ciao!](https://media.tenor.com/_0SyvC_r2XAAAAAC/hi-hello.gif)
+
+### Andrew
+Goodbye Benjy, it was nice working with you! Good work on the beach forecasts; your focus on accessibility/inclusion was inspiring.
+Good luck in your future endeavours! 👋 
