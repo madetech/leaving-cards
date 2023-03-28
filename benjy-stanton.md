@@ -37,3 +37,49 @@ Absolute pleasure working with you again Benji. Can't wait for the next time! Go
 Ciao Benjy, wishing you the best of luck in your future adventures. I hope we will meet again and work together on a project one day!
 
 ![Ciao!](https://media.tenor.com/_0SyvC_r2XAAAAAC/hi-hello.gif)
+
+### Mina
+All the best Benjy for your future endeavours! I have really enjoyed working with you and have learnt a lot. You really care and are passionate about the work you do for people and that is refreshing. Take care and stay in touch!
+
+### Lucy
+It was great getting to work with you Benjy. Thanks for all your hard work on the app and for being our go-to-guy for accessibility questions. Best of luck with your new role. :slightly_smiling_face:
+
+### Mel
+Benjy, it’s been a pleasure working with you again. Thank you for all your hard work on the Met Office app, and for all the support and leadership you’ve given the team. We’ll miss you.<br>
+Best of luck with your contracting adventures. The world needs more accessibility champions like you.<br>
+Keep in touch
+
+### Yelena
+Benjy! Ah, it’s been a ride. I’m so glad our paths crossed here at MT and at the Met Office. I’ve learned so much working with you and also genuinely enjoyed our collaboration (which is the kind of vibe that doesn’t come round every day). Thanks for all the different chats, about research, design, and far beyond. I’m also inspired by your commitment to inclusive design. Wishing you all the very best with your contracting journey; no doubt you’re going to smash it. Thanks for everything and keep in touch! Big hugs :green_heart:
+
+### Sonia
+All the very best on your next ‘chapter’, Benji. Thanks for all the inspiration and knowledge you have shared with us. As everyone says…UX is a small world, so I hope our paths cross again.<br>
+Hasta la vista!
+
+### Corinne
+Best of luck Benjy! It’s been great having you in the UCD community here.
+
+### Sophie
+`#FF00FF` Benjy, we are sad to see you go! Thank you so much for all your help on the app. You’ve done some great work on the beach forecasts and it’s been fantastic working with you :) I wish you all the best with your future pursuits!
+
+### Becki
+All the best for your next chapter Benjy!<br>
+Thanks for all of your hard work and dedication on the app and for being our go to font of all knowledge for accessibility - you will be missed!<br>
+Take care :slightly_smiling_face:
+
+### SSJ
+Best of luck in your future endeavors Benjy, been a pleasure working with you. I’ve learned so much from you on the accessibility front, can’t wait to hear what your next chapter is and I know 100% you’ll make it a success. Keep in touch!
+
+### Ben C
+Has been great working with you Benjy. We'll all miss you. Wishing you all the best in the future.
+
+### NMF
+Thank you very much Benjy for all you have done for us at the Met Office.<br>
+It is a shame to see you go, but i wish you all the very best for the future.
+
+### Rich L
+Hey Benjy, it’s been a pleasure working with you, best of luck for what’s next. All the best
+
+### Jude
+Good luck in your next chapter Benjy!  It was nice to work with you,albeit for a short time!<br>
+Hope the contracting goes well!
