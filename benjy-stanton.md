@@ -95,3 +95,6 @@ Stay in touch. Many best wishes. x :sparkles: :sunny: :boat:
 ### Andrew
 Goodbye Benjy, it was nice working with you! Good work on the beach forecasts; your focus and insight on accessibility was inspiring.
 Good luck in your future endeavours! 👋 
+
+### Jess
+p. Benjy, hopefully this is not our last time working together but will be my last time signing a leaving card for you! Been a pleasure to work near you again. See you in Swansea for leaving beers sometime soon!
