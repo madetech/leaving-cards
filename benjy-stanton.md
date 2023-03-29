@@ -38,6 +38,7 @@ Ciao Benjy, wishing you the best of luck in your future adventures. I hope we wi
 
 ![Ciao!](https://media.tenor.com/_0SyvC_r2XAAAAAC/hi-hello.gif)
 
+
 ### Mina
 All the best Benjy for your future endeavours! I have really enjoyed working with you and have learnt a lot. You really care and are passionate about the work you do for people and that is refreshing. Take care and stay in touch!
 
@@ -83,3 +84,14 @@ Hey Benjy, it’s been a pleasure working with you, best of luck for what’s ne
 ### Jude
 Good luck in your next chapter Benjy!  It was nice to work with you,albeit for a short time!<br>
 Hope the contracting goes well!
+
+#### Dawn
+Hey Benjy,  
+I’m so glad I got the chance to work with you!   
+You’re an absolute pleasure to work with.  
+Thank you for sharing your skills and support.  
+Stay in touch. Many best wishes. x :sparkles: :sunny: :boat:
+
+### Andrew
+Goodbye Benjy, it was nice working with you! Good work on the beach forecasts; your focus and insight on accessibility was inspiring.
+Good luck in your future endeavours! 👋 
