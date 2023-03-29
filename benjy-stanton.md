@@ -38,6 +38,14 @@ Ciao Benjy, wishing you the best of luck in your future adventures. I hope we wi
 
 ![Ciao!](https://media.tenor.com/_0SyvC_r2XAAAAAC/hi-hello.gif)
 
+
+#### Dawn
+> Hey Benjy,  
+I’m so glad I got the chance to work with you!   
+You’re an absolute pleasure to work with.  
+Thank you for sharing your skills and support.  
+Stay in touch. Many best wishes. x :sparkles: :sunny: :boat:
+
 ### Andrew
 Goodbye Benjy, it was nice working with you! Good work on the beach forecasts; your focus and insight on accessibility was inspiring.
 Good luck in your future endeavours! 👋 
