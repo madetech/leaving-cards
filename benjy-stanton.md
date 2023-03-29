@@ -95,3 +95,7 @@ Stay in touch. Many best wishes. x :sparkles: :sunny: :boat:
 ### Andrew
 Goodbye Benjy, it was nice working with you! Good work on the beach forecasts; your focus and insight on accessibility was inspiring.
 Good luck in your future endeavours! 👋 
+
+### Matt
+Unfortunately I’ve only known you for a brief period, but it’s been great to work with you Benjy. You’re a gent! Good luck on your next adventure and hopefully our paths will cross again in the future.<br>
+Take care and best wishes
